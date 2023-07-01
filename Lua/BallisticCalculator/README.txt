@@ -1,0 +1,1 @@
+7/1/23 Started work on this little gem to marry my two majors. Not fully solved yet, but when it is it'll be fantastic.
